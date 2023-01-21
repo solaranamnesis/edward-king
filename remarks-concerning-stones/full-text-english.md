@@ -218,11 +218,11 @@ Of one of the hail-stones of this latter, minor storm, I have had an opportunity
 
 This stone fell, with thousands of others of the same kind, near _Menabilly_, the seat of _Philip Rashleigh_, Esq.; well known for his science, and attention to whatever is curious; who having great copper works, and many ingenious miners, and workmen, on his estate, and directly under his eye; caused it to be instantly picked up: and having then, himself, first traced both its top, and bottom, upon paper; and having measured its thickness in every part, with a pair of compasses; caused a very exact mould to be formed: and afterwards, in that mould, had this model cast in glass: wherein, also, the appearances of the imbedded, common, small, roundish hail-stones, are seen transparently; just as they appeared in the great hail-stone itself originally.
 
-Fig. 1, is a representation of the flat bottom of the stone.
+[Fig. 1](https://cdn.solaranamnesis.com/EdwardKing/Figure1.png), is a representation of the flat bottom of the stone.
 
-Fig. 2, is a representation of the top of the stone.
+[Fig. 2](https://cdn.solaranamnesis.com/EdwardKing/Figure2.png), is a representation of the top of the stone.
 
-And Fig. 3, shows the whole solid appearance sideways.
+And [Fig. 3](https://cdn.solaranamnesis.com/EdwardKing/Figure3.png), shows the whole solid appearance sideways.
 
 Whilst Mr. Rashleigh was taking the measures, it melted so fast, that he could not, in the end, take the _exact weight_, as he fully intended to have done. But as this model in glass weighs exactly 1 ounce, 16 pennyweights, 23 grains, we may fairly conclude, that the hail-stone itself weighed much above half an ounce.
 
