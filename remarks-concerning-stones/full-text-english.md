@@ -1,6 +1,6 @@
 # Remarks concerning Stones said to have fallen from the Clouds, both in these Days, and in Ancient Times.
 
-## By Edward King, Esq. FRS and FAS.
+## By Edward King, Esq. FRS, and FAS.
 
 ### London, 1796.
 
@@ -10,17 +10,17 @@ _An Attempt to account for the Production of a Shower of Stones, that fell in Tu
 
 Res ubi plurimum proficere, et valere possunt, collocari debent. --- Cicero de Orat. 37.
 
-Having received this last winter, from Sir Charles Blagden, some very curious _manuscript_ accounts, concerning a surprising shower of stones; which is said, on the testimony of several persons, to have fallen in Tuscany, on the 16th of June, 1794; --- and having also perused, with much attention, a very interesting pamphlet, written in Italian, by _Abbate Ambrose Soldani_, Professor of mathematics, in the University of Siena, containing an extraordinary and full detail of such facts as could be collected relating to this shower; the whole has appeared to me to afford such an ample field for philosophical contemplation, and also for the illustration of ancient historic facts; that (leaving the whole to rest upon such testimony as the learned Professor has already collected together; and to be supported by such further corroboration, as I am informed is likely _soon_ to arrive in England,) I cannot but think it doing some service to the cause of literature, and science, to give to the world, in the earliest instance, a short abridgement of the substance of the whole of the information; expressed in the most concise and plainest language, in which it is possible for me to convey a full and exact idea of the phænomenon.
+Having received this last winter, from Sir Charles Blagden, some very curious _manuscript_ accounts, concerning a surprising shower of stones; which is said, on the testimony of several persons, to have fallen in Tuscany, on the 16th of June, 1794; --- and having also perused, with much attention, a very interesting pamphlet, written in Italian, by _Abbate Ambrose Soldani_, Professor of mathematics, in the University of Siena, containing an extraordinary and full detail of such facts as could be collected relating to this shower; the whole has appeared to me to afford such an ample field for philosophical contemplation, and also for the illustration of ancient historic facts; that (leaving the whole to rest upon such testimony as the learned Professor has already collected together; and to be supported by such further corroboration, as I am informed is likely _soon_ to arrive in England,) I cannot but think it doing some service to the cause of literature, and science, to give to the world, in the earliest instance, a short abridgement of the substance of the whole of the information; expressed in the most concise and plainest language, in which it is possible for me to convey a full and exact idea of the phenomenon.
 
 It may be of some use, and afford satisfaction to several curious persons, to find the whole here compressed in so small a compass.
 
-And, as I shall add my own conclusions without reserve; because the whole of the phænomenon tends greatly to confirm some ideas which I had previously been led to form, many years ago, concerning the consolidation of certain species of stone; it may open a door for further curious investigation.
+And, as I shall add my own conclusions without reserve; because the whole of the phenomenon tends greatly to confirm some ideas which I had previously been led to form, many years ago, concerning the consolidation of certain species of stone; it may open a door for further curious investigation.
 
 And it may at least amuse, if not instruct; whilst I add a short detail of uncommon facts, recorded in ancient history, and tending to show clearly, that we are not without precedents of _similar events_ having happened, in the early ages of antiquity.
 
 On the 16th of June, 1794, a tremendous cloud was seen in Tuscany, near Siena, and Radacofani; coming from the north, about seven o'clock in the evening; --- sending forth sparks, like rockets; --- throwing out smoke like a furnace; --- rendering violent explosions, and blasts, more like those of cannon, and of numerous muskets, than like thunder; --- and casting down to the ground hot stones: --- whilst the lightning that issued from the cloud was remarkably red; and moved with _less_ velocity than usual.
 
-The cloud appeared of different shapes; to persons in different situations; and remained suspended a long time: but every where was plainly seen to be burning, and smoking like a furnace.
+The cloud appeared of different shapes; to persons in different situations; and remained suspended a long time: but everywhere was plainly seen to be burning, and smoking like a furnace.
 
 And its original height, from a variety of circumstances put together, seems to have been much above the common region of the clouds.
 
@@ -46,11 +46,11 @@ Many others, of a similar kind, were in the possession of different persons at S
 
 And besides the falling of these from the cloud, there is described to have been a fall of sand; seen by keepers of cattle near _Cozone_, together with the falling of what appeared like squibs; and which proved afterwards to be stones, of the sort just described, weighing two or three ounces: --- and some only a quarter of an ounce.
 
-Amongst other stones that fell; was one weighing two pounds, and two ounces; which was also an oblong parallelopiped, with blunted angles, (as they are called, but which I think meant plainly prismatical terminations, and are said to have been about an inch in height;) and this was most remarkable for having, a small circle, or sort of belt round it, in one part; wherein the black crust appeared more smooth; and shining like glass; as if that part had suffered a greater degree of heat than the rest.
+Amongst other stones that fell; was one weighing two pounds, and two ounces; which was also an oblong parallelopiped, with blunted angles, (as they are called, but which I think meant plainly prismatic terminations, and are said to have been about an inch in height;) and this was most remarkable for having, a small circle, or sort of belt round it, in one part; wherein the black crust appeared more smooth; and shining like glass; as if that part had suffered a greater degree of heat than the rest.
 
 Another, also, was no less remarkable, for having many rounded cavities on its surface: as if the stone had been struck with small balls, whilst it was forming; and before it was hardened; which left their impressions. --- And some appearances, of the same kind, were found on one of the four surfaces of another stone, in the possession of Soldani.
 
-On minute examination, the Professor found the stones were composed of blackish _crystals_, of different kinds; with metallic or pyritical spots, all united together by a kind of consolidated ashes. --- And, on polishing them, they appeared to have a ground of a dark ash colour; intermixed with cubical blackish crystals, and shining pyritical specks, of a silver and gold colour.
+On minute examination, the Professor found the stones were composed of blackish _crystals_, of different kinds; with metallic or pyritic spots, all united together by a kind of consolidated ashes. --- And, on polishing them, they appeared to have a ground of a dark ash colour; intermixed with cubical blackish crystals, and shining pyritic specks, of a silver and gold colour.
 
 The conclusion which Professor Soldani evidently forms, is; _that the stones were generated in the air, by a combination of mineral substances, which had risen somewhere or other_, **as exhalations**, _from the earth_: but, as he seems to think, _not from_ Vesuvius.
 
@@ -86,13 +86,13 @@ Instances of which, we seem to have, in some granites, on the one hand; --- and 
 
 To this I must add also; that there appear further, to have been some stones formed _by a sort of precipitation_: much in the same manner as _Grew_ describes* the kernels, and stones of fruit to have been hardened.
 
-And I have met with many instances, wherein it appears unquestionably, that all these kind of processes in nature are going on continually: and that extraneous substances are actually inclosed, and _continually inclosing_, which could not be _antediluvian_; but must have been _recent_.
+And I have met with many instances, wherein it appears unquestionably, that all these kind of processes in nature are going on continually: and that extraneous substances are actually enclosed, and _continually inclosing_, which could not be _antediluvian_; but must have been _recent_.
 
 To these short premises, I must beg leave to add; that in two papers formerly printed in the Philosophical Transactions,* I endeavoured, by some very remarkable instances, to prove, that iron, wherever it comes into combination with any substances that are tending to consolidation, _hastens the process exceedingly_; --- and also renders the hardness of the body much greater.
 
 And I have also endeavoured, elsewhere,* to show, in consequence of conclusions deduced from experiments of the most unquestionable authority, that _air_, in its various shapes and modifications, is indeed _itself_ the great consolidating fluid, out of which solid bodies are composed; and by means of which the various attractions take place, which form all the hard bodies, and visible substances upon earth.
 
-From all these premises then, it was impossible for me not to be led to conclude; that we have, in this august phænomenon of the fall of stones from the clouds, in Tuscany, an obvious proof, as it were before our eyes, of the combined operation of those very powers, and processes, to which I have been alluding.
+From all these premises then, it was impossible for me not to be led to conclude; that we have, in this august phenomenon of the fall of stones from the clouds, in Tuscany, an obvious proof, as it were before our eyes, of the combined operation of those very powers, and processes, to which I have been alluding.
 
 It is well known; that pyrites, which are composed of iron, and sulphur, and other adventitious matter, when laid in heaps, and moistened, will take fire.
 
@@ -104,7 +104,7 @@ It is well known; that pyrites, which are composed of iron, and sulphur, and oth
 
 It is also well known, that a mixture of pyrites of almost any kind, beaten small, and mixed with iron filings and water, when buried in the ground will take fire; and produce a sort of artificial volcano. And, surely then, wherever a vast quantity of such kind of matter should at any time become mixed together, as flying dust, or ashes; and be by any means condensed together, or compressed, the same effect might be produced, even in the atmosphere and air.
 
-Instead, therefore, of having recourse to the supposition, of the cloud in Tuscany having been produced by any other kind of exhalations from the earth; we may venture to believe, that an immense cloud of ashes, mixed with pyritical dust, and with numerous particles of iron, having been projected from Vesuvius to a most prodigious height, became afterwards condensed in its descent; --- took fire, both of itself, as well as by means of the electric fluid it contained; --- produced many explosions; --- melted the pyritical, and metallic, and argillaceous particles, of which the ashes were composed; --- and, by this means, had a sudden crystallization, and consolidation of those particles taken place, which formed the stones of various sizes, that fell to the ground: _but did not harden the clayey ashes so rapidly as the metallic particles crystallized_; and, therefore, gave an opportunity for _impressions to be made_ on the surfaces of some of the stones, as they fell, by means of the impinging of the others.
+Instead, therefore, of having recourse to the supposition, of the cloud in Tuscany having been produced by any other kind of exhalations from the earth; we may venture to believe, that an immense cloud of ashes, mixed with pyritic dust, and with numerous particles of iron, having been projected from Vesuvius to a most prodigious height, became afterwards condensed in its descent; --- took fire, both of itself, as well as by means of the electric fluid it contained; --- produced many explosions; --- melted the pyritic, and metallic, and argillaceous particles, of which the ashes were composed; --- and, by this means, had a sudden crystallization, and consolidation of those particles taken place, which formed the stones of various sizes, that fell to the ground: _but did not harden the clayey ashes so rapidly as the metallic particles crystallized_; and, therefore, gave an opportunity for _impressions to be made_ on the surfaces of some of the stones, as they fell, by means of the impinging of the others.
 
 Nor does it appear to me, to be any solid objection to this conclusion, either that Vesuvius was so far distant; or that the cloud came from the north.
 
@@ -120,7 +120,7 @@ Sir William Hamilton himself formed somewhat this sort of conclusion, on receivi
 
 I cannot therefore but allow my own conclusion to carry conviction with it to my own mind; and to send it forth into the world; as a ground, at least, for speculation, and reflection, to the minds of others.
 
-That ashes, and sand, and pyritical and sulphureous dust, mixed with metallic particles from volcanoes; fit for the instantaneous crystallization, and consolidation of such bodies as we have been describing, are often actually floating in the atmosphere, at incredible distances from volcanoes, and more frequently than the world are at all aware of, is manifest from several well attested facts.
+That ashes, and sand, and pyritic and sulphureous dust, mixed with metallic particles from volcanoes; fit for the instantaneous crystallization, and consolidation of such bodies as we have been describing, are often actually floating in the atmosphere, at incredible distances from volcanoes, and more frequently than the world are at all aware of, is manifest from several well attested facts.
 
 On the 26th of December, 1631, Captain _Badily_, being in the Gulf of Volo, in the Archipelago, riding at anchor, about ten o'clock at night, it began to rain _sand_ and _ashes_; and continued to do so till two o'clock the next morning. The ashes lay about two inches thick on the deck: so that they cast them overboard just as they had done snow the day before. There was no wind stirring, when the ashes fell: and yet this extraordinary shower was not confined merely to the place where _Badily_'s ship was*; but, as it appeared afterwards, was extended so widely to other parts, that ships coming from _St. John d'Acre_ to that port, being at the distance of _one hundred leagues_ from thence, were covered with the same sort of ashes. And no possible account could be given of them, except that they might come from Vesuvius.
 
@@ -130,7 +130,7 @@ On the 23rd of October, 1755, a ship belonging to a merchant of Leith, bound for
 
 *) Philos. Trans. Vol. 49. p. 510.
 
-In October, 1762, at _Detroit_, in America, was a most surprising darkness, from day-break till four in the afternoon, during which time some rain falling, brought down, with the drops, sulphur and dirt; which rendered white paper black, and when burned fizzed like wet gunpowder:* and whence such matter could originally be brought, appeared to be past all conjecture, unless it came so far off as from the volcano in Guadaloupe.
+In October, 1762, at _Detroit_, in America, was a most surprising darkness, from day-break till four in the afternoon, during which time some rain falling, brought down, with the drops, sulphur and dirt; which rendered white paper black, and when burned fizzed like wet gunpowder:* and whence such matter could originally be brought, appeared to be past all conjecture, unless it came so far off as from the volcano in Guadeloupe.
 
 *) Philos. Trans. Vol. 53. p. 54.
 
@@ -164,7 +164,7 @@ _Clemens Alexandrinus_ was so well acquainted with these facts, that he even con
 
 *) Clem. Alex. lib. 1. --- Stromatum.
 
-It is hard to conceive how mankind should ever have been led to so accursed an abomination, as the worship of stocks, and stones, at all: but, as far as any thing so horrid is to be accounted for, there is no way so likely of rendering a possible account; as that of concluding, that some of these pyramidal stones, at least, like the image of _Diana_, actually did fall, in the earliest ages, from the clouds; in the same manner as these pyramidal stones fell, in 1794, in Tuscany.
+It is hard to conceive how mankind should ever have been led to so accursed an abomination, as the worship of stocks, and stones, at all: but, as far as anything so horrid is to be accounted for, there is no way so likely of rendering a possible account; as that of concluding, that some of these pyramidal stones, at least, like the image of _Diana_, actually did fall, in the earliest ages, from the clouds; in the same manner as these pyramidal stones fell, in 1794, in Tuscany.
 
 _Plutarch_, it is well known, mentions* a stone which formerly fell from the clouds, in _Thrace_, and which _Anaxagoras_ fancied* to have fallen from the sun.
 
@@ -178,7 +178,7 @@ Pliny,* who tells us that not only the remembrance of this event, but that the s
 
 *) Historia Nat. lib. 2. cap. 59.
 
-_Livy_, who like _Herodotus_, has been oftentimes censured as too credulous, and as a relater of falsehoods, for preserving traditions of _an extraordinary kind_; which, after all, in ages of more enlarged information, have proved to have been founded in truth; describes* a fall of stones to have happened on mount _Alba_, during the reign of _Tullus Hostilius_, (that is about 652 years before the Christian era), in words that exactly convey an idea of just such a phænomenon, as this which has so lately been observed in Tuscany.
+_Livy_, who like _Herodotus_, has been oftentimes censured as too credulous, and as a relater of falsehoods, for preserving traditions of _an extraordinary kind_; which, after all, in ages of more enlarged information, have proved to have been founded in truth; describes* a fall of stones to have happened on mount _Alba_, during the reign of _Tullus Hostilius_, (that is about 652 years before the Christian era), in words that exactly convey an idea of just such a phenomenon, as this which has so lately been observed in Tuscany.
 
 *) Lib. 1. Sec. 31.
 
@@ -194,7 +194,7 @@ He mentions also shortly another shower of stones,* A. C. 202, and still a third
 
 Such are the records of ancient history. And in Holy Writ also a remembrance of similar events is preserved.
 
-For when the royal Psalmist says,* "_The Lord also thundered out of heaven, and the Highest gave his thunder: hail-stones_, **and coals of fire**," -- the latter expression, in consistency with common sense, and conformably to the right meaning of language, cannot but allude to some such phænomenon as we have been describing. And especially, as in the cautious translation of the seventy, a Greek word is used, which decidedly means _real hard substances made red hot_; and not mere appearances of fire or flame.
+For when the royal Psalmist says,* "_The Lord also thundered out of heaven, and the Highest gave his thunder: hail-stones_, **and coals of fire**," -- the latter expression, in consistency with common sense, and conformably to the right meaning of language, cannot but allude to some such phenomenon as we have been describing. And especially, as in the cautious translation of the seventy, a Greek word is used, which decidedly means _real hard substances made red hot_; and not mere appearances of fire or flame.
 
 *) Psalm 18. v. 13.
 
@@ -232,21 +232,21 @@ For it is well known, that the specific gravity of common glass, of which sort t
 
 From the singular manner in which the small, prior, common hail-stones appear to have been imbedded in this larger one, whilst they were falling to the earth; there is reason to be convinced, that it was formed in the atmosphere, by a sudden extraordinary congelation _almost instantaneously_, out of rain suddenly condensed, which was mingled with the common hail.
 
-And it was very remarkable, that its dissolution, and melting, also, was much more rapid than that of the common small white hail-stones: as was the case, in like manner, with the other numerous large ones.
+And it was very remarkable, that its dissolution, and melting, also, was much more rapid than that of the common small white hailstones: as was the case, in like manner, with the other numerous large ones.
 
 Perhaps it ought to be here added: --- that on the 18th of May, in the year 1680, some hail-stones are recorded to have fallen in London, near _Gresham college_, which were seen and examined by the celebrated _Dr. Hooke_; and were some of them not less than two inches over, and others three inches.
 
-This which fell in Cornwall was only about one inch and three quarters long; an inch, or in some parts an inch and a quarter broad; and between half an inch, and three quarters of an inch thick. And its weight was near an ounce. --- How much more tremendous then were those others, that have been described as having fallen in France? --- the accounts of some of them may very probably have been exaggerated: but the reality was nevertheless as wonderful, surely, as any thing related concerning the ages of antiquity.
+This which fell in Cornwall was only about one inch and three quarters long; an inch, or in some parts an inch and a quarter broad; and between half an inch, and three quarters of an inch thick. And its weight was near an ounce. --- How much more tremendous then were those others, that have been described as having fallen in France? --- the accounts of some of them may very probably have been exaggerated: but the reality was nevertheless as wonderful, surely, as anything related concerning the ages of antiquity.
 
 A proneness to credulity is ever blameable. And it is very possible, that sometimes, in a very wonderful narration, a jest may be intended to be palmed upon the world, instead of any elucidation of truth. --- But facts, _positively affirmed_, should be hearkened to with patience: and, at least, so far recorded, as to give an opportunity of verifying whether similar events do afterwards happen; and of comparing such events one with another.
 
-To what has been said, therefore, concerning the fall of stones in Tuscany, and concerning these strange showers of hail, in France, and in England, it might perhaps too justly be deemed an unwarrantable omission, on this occasion, not to mention the very strange faet that is affirmed to have happened the last year, near _the Wold Cottage_ in Yorkshire.
+To what has been said, therefore, concerning the fall of stones in Tuscany, and concerning these strange showers of hail, in France, and in England, it might perhaps too justly be deemed an unwarrantable omission, on this occasion, not to mention the very strange fact that is affirmed to have happened the last year, near _the Wold Cottage_ in Yorkshire.
 
 I leave the fact to rest on the support of the testimonies referred to in the printed paper, which is in so many persons' hands; and that is given to those who have the curiosity to examine the stone itself, now exhibiting in London; --- and shall only relate the substance of the account shortly, as it is given to us.
 
 In the afternoon of the 13th of December, 1795, near the Wold Cottage, noises were heard in the air, by various persons, like the report of a pistol; or of guns at a distance at sea; though there was neither any thunder or lightning at the time: --- two distinct concussions of the earth were said to be perceived: --- and an hissing noise, was also affirmed to be heard by other persons, as of something passing through the air; --- and a labouring man plainly saw (as we are told) that something was so passing; and beheld a stone, as it seemed, at last, (about ten yards, or thirty feet, distant from the ground) descending, and striking into the ground, which flew up all about him: and, in falling, sparks of fire, seemed to fly from it.
 
-Afterwards he went to the place, in company with others, who had witnessed part of the phænomena, and dug the stone up from the place, where it was buried about twenty-one inches deep.
+Afterwards he went to the place, in company with others, who had witnessed part of the phenomena, and dug the stone up from the place, where it was buried about twenty-one inches deep.
 
 It smelt, (as it is said,) very strongly of sulphur, when it was dug up: and was even warm, and smoked: --- it was found to be thirty inches in length, and twenty-eight and a half inches in breadth. And it weighed fifty-six pounds.
 
@@ -266,19 +266,19 @@ For one is recorded to have fallen in _Alsace_, in the midst of a storm of hail,
 
 And another is said to be still preserved at Vienna.
 
-This last is deseribed by _Abbé Stutz_, Assistant in the Imperial cabinet of curiosities at Vienna, in a book printed in German, at _Leipsyc_, in 1790: entitled _Bergbaukinde_ (or _the Science of Mining_.)
+This last is described by _Abbé Stutz_, Assistant in the Imperial cabinet of curiosities at Vienna, in a book printed in German, at _Leipsyc_, in 1790: entitled _Bergbaukinde_ (or _the Science of Mining_.)
 
 After describing two other stones, said to have fallen from the clouds: one in the _Eichstedt_ country in Germany; and another in the _Bechin_ circle, in Bohemia, in July, 1753; concerning the _real_ falling of which he had expressed some doubts; he proceeds to describe the falling of two, (whereof this was one,) not far from _Agram_, the capital of _Croatia_, in Hungary; which caused him to change his opinion; and to believe, that the falling of such stones from heaven, was very possible.
 
-His words, fairly translated,* in the beginning of his narrative, are, "These accounts put me in mind of a mass of iron, weighing seventy-one pounds, which was sent to the imperial collection of natural curiosities: about the origin of which _many mouths have been distorted with scoffing laughter_. If, in the _Eichstedt_ specimen, the effects of fire appear _tolerably_ evident; they are, in this, not to be mistaken. --- Its surface is full of spherical impressions, like the mass of iron, which the celebrated _Pallas_ found on the Jenisei river; except that here the impressions are larger, and less deep; and it wants both the yellow glass, which fills up the hollows of the _Siberian_ iron; and the _sand stone_, which is found in the _Eichstedt_ specimen; the whole mass being solid, compact, and black, like hammered iron."
+His words, fairly translated,* in the beginning of his narrative, are, "These accounts put me in mind of a mass of iron, weighing seventy-one pounds, which was sent to the imperial collection of natural curiosities: about the origin of which _many mouths have been distorted with scoffing laughter_. If, in the _Eichstedt_ specimen, the effects of fire appear _tolerably_ evident; they are, in this, not to be mistaken. --- Its surface is full of spherical impressions, like the mass of iron, which the celebrated _Pallas_ found on the Yenisei river; except that here the impressions are larger, and less deep; and it wants both the yellow glass, which fills up the hollows of the _Siberian_ iron; and the _sand stone_, which is found in the _Eichstedt_ specimen; the whole mass being solid, compact, and black, like hammered iron."
 
 *) For which translation I am obliged to Sir Charles Blagden.
 
-And his words in the end of the narrative are, "There is a great step from the disbelief of tales, to the finding out the true cause of a phænomenon which appears wonderful to us. And probably I should have committed the fault into which we so naturally fall, respecting things we cannot explain; and have rather denied the whole history, than have determined to believe any thing _so incredible_; if various new writings, on electricity, and thunder, had not fortunately, at that time come into my hands; concerning remarkable experiments of reviving _metallic calces_ by the electric spark. Lightning is an electrical stroke on a large scale. --- If then the reduction of iron can be obtained, by the discharge of an electrical machine; why should not this be accomplished as well, and with much greater effect by the very powerful discharge of the lightning of the clouds?"
+And his words in the end of the narrative are, "There is a great step from the disbelief of tales, to the finding out the true cause of a phenomenon which appears wonderful to us. And probably I should have committed the fault into which we so naturally fall, respecting things we cannot explain; and have rather denied the whole history, than have determined to believe anything _so incredible_; if various new writings, on electricity, and thunder, had not fortunately, at that time come into my hands; concerning remarkable experiments of reviving _metallic calces_ by the electric spark. Lightning is an electrical stroke on a large scale. --- If then the reduction of iron can be obtained, by the discharge of an electrical machine; why should not this be accomplished as well, and with much greater effect by the very powerful discharge of the lightning of the clouds?"
 
 The substance of the account of the fall of stones, in Hungary, as given by him, after the most accurate inquiries, is what I shall now add in the following abridged detail; and it was verified by _Wolfgang Kukulyewich, Spiritual vicar of Francis Baron Clobuschiczky, Bishop of Agram_, who caused seven eye witnesses to be examined, concerning the actual falling of these stones on the 26th of May, 1751; --- which witnesses were ready to testify all they affirmed, upon oath, --- and one of them was Mr. George Marsich, Curate, as we should call him, of the parish.
 
-According to their accounts; about six o'clock, in the afternoon of the day just mentioned, there was seen towards the east, a kind of fiery ball; which, after it had barst into two parts, with a great report, exceeding that of a cannon, fell from the sky, in the form, and appearance of _two chains_ entangled in one another: --- and also with a loud noise, as of a great number of carriages rolled along. And after this a black smoke appeared; and a part of the ball seemed to fall in an arable field of one _Michael Koturnass_; on the fall of which to the ground a still greater noise was heard; and a shock perceived, something like an earthquake.
+According to their accounts; about six o'clock, in the afternoon of the day just mentioned, there was seen towards the east, a kind of fiery ball; which, after it had burst into two parts, with a great report, exceeding that of a cannon, fell from the sky, in the form, and appearance of _two chains_ entangled in one another: --- and also with a loud noise, as of a great number of carriages rolled along. And after this a black smoke appeared; and a part of the ball seemed to fall in an arable field of one _Michael Koturnass_; on the fall of which to the ground a still greater noise was heard; and a shock perceived, something like an earthquake.
 
 This piece was afterwards soon dug out of the ground; which had been particularly noted to be plain and level, and ploughed just before; but where it was now found to have made a great fissure, or cleft, an ell wide, whilst it singed the earth on the sides.
 
@@ -298,11 +298,11 @@ And I must now add that there is a record,* that stones, to the number of some h
 
 Here I intended to have concluded all my observations. But a recent publication, which I knew not of, when these sheets were written, obliges me to add a few more pages.
 
-In a very singular tract, published in 1794, at Riga, by Dr. _Chladni_, concerning the supposed origin of the mass of iron found by Dr. Pallas in Siberia; which the Tartars still affirm to be _an holy thing_, and, _to have fallen from heaven_; and concerning what have been supposed, by him, to be similar phænomena; some circumstances are also mentioned, which it would be an unjust omission not to take notice of shortly, on the present occasion.
+In a very singular tract, published in 1794, at Riga, by Dr. _Chladni_, concerning the supposed origin of the mass of iron found by Dr. Pallas in Siberia; which the Tartars still affirm to be _an holy thing_, and, _to have fallen from heaven_; and concerning what have been supposed, by him, to be similar phenomena; some circumstances are also mentioned, which it would be an unjust omission not to take notice of shortly, on the present occasion.
 
-With the author's hypothesis I do not presume to interfere; but surely his facts, which he affirms it support of his ideas, deserve much attention; and ought to be inserted, before I conclude these observations: and the rather, as they were adduced to maintain conclusions very different from these now offered to the consideration of the curious.
+With the author's hypothesis I do not presume to interfere; but surely his facts, which he affirms its support of his ideas, deserve much attention; and ought to be inserted, before I conclude these observations: and the rather, as they were adduced to maintain conclusions very different from these now offered to the consideration of the curious.
 
-On the 21st of May, 1676, fire ball was seen to come from Dalmatia,* proceeding over the Adriatic sea; it passed obliquely over Italy; where an hissing noise was heard; it burst SSW from Leghorn, with a terrible report; _and the pieces are said to bave fallen into the sea_, with the same sort of noise, as when red hot iron is quenched or extinguished in water. Its height was computed to be not less than thirty-eight Italian miles; and it is said to have moved with immense velotity. Its form was oblong, at least as the luminous appearance seemed in its passage.
+On the 21st of May, 1676, fire ball was seen to come from Dalmatia,* proceeding over the Adriatic sea; it passed obliquely over Italy; where an hissing noise was heard; it burst SSW from Leghorn, with a terrible report; _and the pieces are said to have fallen into the sea_, with the same sort of noise, as when red hot iron is quenched or extinguished in water. Its height was computed to be not less than thirty-eight Italian miles; and it is said to have moved with immense velocity. Its form was oblong, at least as the luminous appearance seemed in its passage.
 
 *) An account of this stone is given by Dr. Halley in the Philosophical Trans. No. 341. And also there is an account of it by Montenari.
 
@@ -310,7 +310,7 @@ _Avicenna_ mentions, (Averrhoes, lib. 2do Meteor. cap. 9.) that he had seen at C
 
 In _Spangenberg's_ Chron. Saxon, an account is found, that at Magdeburg, in A. D. 998, two great stones, fell down in a storm of thunder: one in the town itself; the other near the Elbe, in the open country.
 
-The well known, and celebrated _Cardan_, in his book, _De Varietate Rerum_, lib. 14. cap. 72. tells us, that he himself, in the year 1510, had seen one hundred and twenty stones fall from heaven; among which one weighed one hundred and twenty; and another sixty pounds. That they were mostly of an _iron colour_, and very hard, and melt of brimstone. He remarks, moreover, that about three o'clock, a great fire was to be seen in the heavens; and that about five o'clock the stones fell down with a rushing noise.
+The well-known, and celebrated _Cardan_, in his book, _De Varietate Rerum_, lib. 14. cap. 72. tells us, that he himself, in the year 1510, had seen one hundred and twenty stones fall from heaven; among which one weighed one hundred and twenty; and another sixty pounds. That they were mostly of an _iron colour_, and very hard, and melt of brimstone. He remarks, moreover, that about three o'clock, a great fire was to be seen in the heavens; and that about five o'clock the stones fell down with a rushing noise.
 
 And _Julius Scaliger_ (in his book _De Subtilitate Exerc._ p. 333.) affirms, that he had in his possession a piece of iron (as he calls it,) which had fallen from heaven in _Savoy_.
 
@@ -328,11 +328,11 @@ He adds, also, that in the 31st Essay of the Breslau Collections, p. 44 is found
 
 And I shall conclude all _Chladni's_ remarkable facts, in addition to those which I had myself collected, before ever I heard of his curious book, with a short summary of what he calls one of the _newest_ accounts of this kind, extracted from the _Histoire de l'Académie des Sciences_, 1769, p. 20.
 
-It is an account of three masses, which fell down with thunder, in provinces very distant from one another; and which were sent to the Academy in 1769. They were sent from _Maine_, _Artois_, and _Cotentin_: and it is affirmed, that when they fell an hissing was heard; and that they were found hot. All three were like one another; all three were of the same colour, and nearly of the same grain; and small metallic and pyritical particles could be distinguished in them; and, externally, all three were covered with an hard ferruginous coat: and, on chemical investigation, they were found to contain iron, and sulphur.*
+It is an account of three masses, which fell down with thunder, in provinces very distant from one another; and which were sent to the Academy in 1769. They were sent from _Maine_, _Artois_, and _Cotentin_: and it is affirmed, that when they fell an hissing was heard; and that they were found hot. All three were like one another; all three were of the same colour, and nearly of the same grain; and small metallic and pyritic particles could be distinguished in them; and, externally, all three were covered with an hard ferruginous coat: and, on chemical investigation, they were found to contain iron, and sulphur.*
 
 *) All these facts are to be found mentioned in Chladni's book; first at p. 8, and then from p. 34 to 37.
 
-Considering, then, all these facts so positively affirmed, concerning these various, most curious phænomena: --- the explosions; --- the sparks; --- the lights; --- the hissing noises; --- the stones seen to fall; --- the stones dug up hot, and even smoking; --- and some scorching, and even burning other bodies in their passage; --- we cannot but also bring to remembrance, what Sir John Pringle affirmed to have been observed; concerning a fiery meteor, seen on Sunday, the 26th of November, 1758, in several parts of England and Scotland.*
+Considering, then, all these facts so positively affirmed, concerning these various, most curious phenomena: --- the explosions; --- the sparks; --- the lights; --- the hissing noises; --- the stones seen to fall; --- the stones dug up hot, and even smoking; --- and some scorching, and even burning other bodies in their passage; --- we cannot but also bring to remembrance, what Sir John Pringle affirmed to have been observed; concerning a fiery meteor, seen on Sunday, the 26th of November, 1758, in several parts of England and Scotland.*
 
 *) See the full account in the Philosophical Transactions, Vol. 51. for 1759, p. 218, _etc._
 
@@ -356,7 +356,7 @@ I take all the facts, just as I find them affirmed. I have preserved a faithful 
 
 For the sake of possible philosophical use; --- let the philosophical, and curious just preserve these facts in remembrance.
 
-For the sake of philological advantage; --- let the discerning weigh, and judge. For (if such things be,) what has so often come to pass, according to what is commonly called _the usual course of nature_; may most undoubtedly, henceforth, without any hesitating doubts, be believed to have been brought to pass, on an extraordinary occasion, in a still more tremendous mamner, by the immediate _fiat of the Almighty_.
+For the sake of philological advantage; --- let the discerning weigh, and judge. For (if such things be,) what has so often come to pass, according to what is commonly called _the usual course of nature_; may most undoubtedly, henceforth, without any hesitating doubts, be believed to have been brought to pass, on an extraordinary occasion, in a still more tremendous manner, by the immediate _fiat of the Almighty_.
 
 Let no man scoff; lest he drives away the means of real information. --- And let all men _watch_, for the increase of science. ---
 
@@ -376,7 +376,7 @@ Its figure plainly indicates, that in the instant of its formation, there was a 
 
 Its black crust, or coating, is such as has been described in the preceding pages: and is also remarkable, for the appearance of a sort of minute chequer work, formed by very fine white lines on the black surface.
 
-And, although this small specimen weighs only four pennyweights, nineteen grains; it is a matter well deserving attention, with regard to its interior substance, how much resemblance, on the whole, it really has with the stone said to have fallen in Yorkshire; in its gritty substance, and in its metallic, and pyritical spots, and in those parts where the pyrites appear to have been decomposed.
+And, although this small specimen weighs only four pennyweights, nineteen grains; it is a matter well deserving attention, with regard to its interior substance, how much resemblance, on the whole, it really has with the stone said to have fallen in Yorkshire; in its gritty substance, and in its metallic, and pyritic spots, and in those parts where the pyrites appear to have been decomposed.
 
 On this occasion, therefore, it would _now_ be a want of justice, not to subjoin the full and more particular account, given in the _Journal de Physique_, (Tome 2. p. 251.), _by M. M. Fougeroux_, of the stone which fell in _Maine_; and which has already been shortly mentioned, as described _in the Hist. de I' Acad. des Sciences_ (for 1769. p. 20), with two others, from _Artois_, and _Cotentin_; because this also, both in its history, and in its appearance, seems to have had so near an affinity to the Yorkshire stone.
 
