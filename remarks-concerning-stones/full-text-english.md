@@ -362,9 +362,9 @@ Let no man scoff; lest he drives away the means of real information. --- And let
 
 The wisdom and power of God are far above not only the first apprehensions, but even the highest ideas of man. And our truest wisdom, and best improvement of knowledge, consist in searching out, and in attending diligently, to what he has actually done: ever bearing in mind those words of the holy Psalmist.*
 
-"_The works of The Lord are great: sought out of all them that have pleasure therein."
+"_The works of The Lord are great: sought out of all them that have pleasure therein._"
 
-"The Lord hath so done his marvellous works, that they ought to be had in remembrance."
+"_The Lord hath so done his marvellous works, that they ought to be had in remembrance._"
 
 *) Psalm 111. v. 2 and 4.
 
