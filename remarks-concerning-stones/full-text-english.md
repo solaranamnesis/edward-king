@@ -388,8 +388,8 @@ The specific gravity of the stone was 3,535. --- And the chemical analysis of it
 
 The academicians, indeed, thought it was a stone merely _struck by lightning_: but, since so many corresponding facts, in other places, so remote, and so unconnected with each other, and suggesting a more interesting idea, have now come to light; such sort of _concurrent_ evidence, according to the rule so wisely adopted by the learned Grotius, in his treatise _De Veritate_, ought, surely, to be duly weighed: and may justly lead us to a different conclusion.
 
-[Figure 1](https://cdn.solaranamnesis.com/EdwardKing/Figure1.png)
+![Figure 1](https://cdn.solaranamnesis.com/EdwardKing/Figure1.png)
 
-[Figure 2](https://cdn.solaranamnesis.com/EdwardKing/Figure2.png)
+![Figure 2](https://cdn.solaranamnesis.com/EdwardKing/Figure2.png)
 
-[Figure 3](https://cdn.solaranamnesis.com/EdwardKing/Figure3.png)
+![Figure 3](https://cdn.solaranamnesis.com/EdwardKing/Figure3.png)
