@@ -8,6 +8,8 @@
 
 _An Attempt to account for the Production of a Shower of Stones, that fell in Tuscany, on the 16th of June, 1794; and to show that there are Traces of similar Events having taken place, in the highest Ages of Antiquity. In the course of which Detail is also inserted, an Account of an extraordinary Hailstone, that fell, with many others, in Cornwall, on the 20th of October, 1791._
 
+Res ubi plurimum proficere, et valere possunt, collocari debent. --- Cicero de Orat. 37.
+
 Having received this last winter, from Sir Charles Blagden, some very curious _manuscript_ accounts, concerning a surprising shower of stones; which is said, on the testimony of several persons, to have fallen in Tuscany, on the 16th of June, 1794; --- and having also perused, with much attention, a very interesting pamphlet, written in Italian, by _Abbate Ambrose Soldani_, Professor of mathematics, in the University of Siena, containing an extraordinary and full detail of such facts as could be collected relating to this shower; the whole has appeared to me to afford such an ample field for philosophical contemplation, and also for the illustration of ancient historic facts; that (leaving the whole to rest upon such testimony as the learned Professor has already collected together; and to be supported by such further corroboration, as I am informed is likely _soon_ to arrive in England,) I cannot but think it doing some service to the cause of literature, and science, to give to the world, in the earliest instance, a short abridgement of the substance of the whole of the information; expressed in the most concise and plainest language, in which it is possible for me to convey a full and exact idea of the phænomenon.
 
 It may be of some use, and afford satisfaction to several curious persons, to find the whole here compressed in so small a compass.
@@ -256,4 +258,132 @@ Whether, therefore, it might, or might not, possibly be the effect of ashes flun
 
 I wish to be understood to preserve mere records, the full authority for which, deserves to be investigated more and more.
 
-...
+Having, nevertheless, gone so far as to say thus much; I ought to add, that the memorial of such sort of large stones having fallen from the clouds is still preserved also in Germany.
+
+For one is recorded to have fallen in _Alsace_, in the midst of a storm of hail, November 29th, A. D. 1630*; which is said to be preserved in the great church of _Anxissem_: and to be like a large dark sort of flint-stone; having its surface operated upon by fire: and to be of very many pounds weight.
+
+*) Vide Gesner. --- and Ans de Boot Hist. Lapidum.
+
+And another is said to be still preserved at Vienna.
+
+This last is deseribed by _Abbé Stutz_, Assistant in the Imperial cabinet of curiosities at Vienna, in a book printed in German, at _Leipsyc_, in 1790: entitled _Bergbaukinde_ (or _the Science of Mining_.)
+
+After describing two other stones, said to have fallen from the clouds: one in the _Eichstedt_ country in Germany; and another in the _Bechin_ circle, in Bohemia, in July, 1753; concerning the _real_ falling of which he had expressed some doubts; he proceeds to describe the falling of two, (whereof this was one,) not far from _Agram_, the capital of _Croatia_, in Hungary; which caused him to change his opinion; and to believe, that the falling of such stones from heaven, was very possible.
+
+His words, fairly translated,* in the beginning of his narrative, are, "These accounts put me in mind of a mass of iron, weighing seventy-one pounds, which was sent to the imperial collection of natural curiosities: about the origin of which _many mouths have been distorted with scoffing laughter_. If, in the _Eichstedt_ specimen, the effects of fire appear _tolerably_ evident; they are, in this, not to be mistaken. --- Its surface is full of spherical impressions, like the mass of iron, which the celebrated _Pallas_ found on the Jenisei river; except that here the impressions are larger, and less deep; and it wants both the yellow glass, which fills up the hollows of the _Siberian_ iron; and the _sand stone_, which is found in the _Eichstedt_ specimen; the whole mass being solid, compact, and black, like hammered iron."
+
+*) For which translation I am obliged to Sir Charles Blagden.
+
+And his words in the end of the narrative are, "There is a great step from the disbelief of tales, to the finding out the true cause of a phænomenon which appears wonderful to us. And probably I should have committed the fault into which we so naturally fall, respecting things we cannot explain; and have rather denied the whole history, than have determined to believe any thing _so incredible_; if various new writings, on electricity, and thunder, had not fortunately, at that time come into my hands; concerning remarkable experiments of reviving _metallic calces_ by the electric spark. Lightning is an electrical stroke on a large scale. --- If then the reduction of iron can be obtained, by the discharge of an electrical machine; why should not this be accomplished as well, and with much greater effect by the very powerful discharge of the lightning of the clouds?"
+
+The substance of the account of the fall of stones, in Hungary, as given by him, after the most accurate inquiries, is what I shall now add in the following abridged detail; and it was verified by _Wolfgang Kukulyewich, Spiritual vicar of Francis Baron Clobuschiczky, Bishop of Agram_, who caused seven eye witnesses to be examined, concerning the actual falling of these stones on the 26th of May, 1751; --- which witnesses were ready to testify all they affirmed, upon oath, --- and one of them was Mr. George Marsich, Curate, as we should call him, of the parish.
+
+According to their accounts; about six o'clock, in the afternoon of the day just mentioned, there was seen towards the east, a kind of fiery ball; which, after it had barst into two parts, with a great report, exceeding that of a cannon, fell from the sky, in the form, and appearance of _two chains_ entangled in one another: --- and also with a loud noise, as of a great number of carriages rolled along. And after this a black smoke appeared; and a part of the ball seemed to fall in an arable field of one _Michael Koturnass_; on the fall of which to the ground a still greater noise was heard; and a shock perceived, something like an earthquake.
+
+This piece was afterwards soon dug out of the ground; which had been particularly noted to be plain and level, and ploughed just before; but where it was now found to have made a great fissure, or cleft, an ell wide, whilst it singed the earth on the sides.
+
+The other piece, which fell in a meadow, was also dug up; and weighed sixteen pounds.
+
+And it is fairly observed, that the unadorned manner in which the whole account from _Agram_ is written; the agreement of the different witnesses, who had no reason to accord in a lie; and the similarity of this history to that of the _Eichstedt_ stone; makes it at least very probable, that there was indeed something real, and worth notice, in the account.
+
+The _Eichstedt_ stone (somewhat like that said to have fallen so lately in Yorkshire) is described as having been composed of ash-grey sand stone, with fine grains intermixed all through it, partly of real native iron, and partly of yellowish brown ochre of iron: and as being about as hard as building stone. --- It is said not to effervesce with acids, and evidently to consist of small particles of siliceous stone and iron. --- It had also a solid malleable coat of native iron, as was supposed, quite free from sulphur, and about two lines thick; which quite covered its surface; resembling a blackish glazing. And the whole mass exhibited evident marks of having been exposed to fire.
+
+A plain testimony of the falling of this was affirmed to be, produced as follows; that a labourer, at a brick-kiln, in winter, when the earth was covered with snow, saw it fall down out of the air immediately after a violent clap of thunder; --- and that he instantly ran up to take it out of the snow; but found he could not do so, on account of its heat; and was obliged therefore to wait, to let it cool. That it was about half a foot in diameter; and was entirely covered with a black coat like iron.*
+
+*) This account, from Abbé _Stutz_, and the following from Dr. _Chladni_, I received, translated from the German, by the favour of Sir Charles Blagden.
+
+And I must now add that there is a record,* that stones, to the number of some hundreds, did once fall in the neighbourhood of a place called _Abdua_; which were very large and heavy; --- of the colour of rusty iron; --- smooth, and hard; --- and of a sulphureous smell: --- and which were observed to fall from a vehement whirlwind; that appeared (like that in Tuscany) as an atmosphere of fire.
+
+*) Vide Cardan _De Variet_. lib. 14. c. 72.
+
+Here I intended to have concluded all my observations. But a recent publication, which I knew not of, when these sheets were written, obliges me to add a few more pages.
+
+In a very singular tract, published in 1794, at Riga, by Dr. _Chladni_, concerning the supposed origin of the mass of iron found by Dr. Pallas in Siberia; which the Tartars still affirm to be _an holy thing_, and, _to have fallen from heaven_; and concerning what have been supposed, by him, to be similar phænomena; some circumstances are also mentioned, which it would be an unjust omission not to take notice of shortly, on the present occasion.
+
+With the author's hypothesis I do not presume to interfere; but surely his facts, which he affirms it support of his ideas, deserve much attention; and ought to be inserted, before I conclude these observations: and the rather, as they were adduced to maintain conclusions very different from these now offered to the consideration of the curious.
+
+On the 21st of May, 1676, fire ball was seen to come from Dalmatia,* proceeding over the Adriatic sea; it passed obliquely over Italy; where an hissing noise was heard; it burst SSW from Leghorn, with a terrible report; _and the pieces are said to bave fallen into the sea_, with the same sort of noise, as when red hot iron is quenched or extinguished in water. Its height was computed to be not less than thirty-eight Italian miles; and it is said to have moved with immense velotity. Its form was oblong, at least as the luminous appearance seemed in its passage.
+
+*) An account of this stone is given by Dr. Halley in the Philosophical Trans. No. 341. And also there is an account of it by Montenari.
+
+_Avicenna_ mentions, (Averrhoes, lib. 2do Meteor. cap. 9.) that he had seen at Cordova, in Spain, a sulphureous stone that had fallen from heaven.
+
+In _Spangenberg's_ Chron. Saxon, an account is found, that at Magdeburg, in A. D. 998, two great stones, fell down in a storm of thunder: one in the town itself; the other near the Elbe, in the open country.
+
+The well known, and celebrated _Cardan_, in his book, _De Varietate Rerum_, lib. 14. cap. 72. tells us, that he himself, in the year 1510, had seen one hundred and twenty stones fall from heaven; among which one weighed one hundred and twenty; and another sixty pounds. That they were mostly of an _iron colour_, and very hard, and melt of brimstone. He remarks, moreover, that about three o'clock, a great fire was to be seen in the heavens; and that about five o'clock the stones fell down with a rushing noise.
+
+And _Julius Scaliger_ (in his book _De Subtilitate Exerc._ p. 333.) affirms, that he had in his possession a piece of iron (as he calls it,) which had fallen from heaven in _Savoy_.
+
+_Wolf_ (in _Lection. Memorab._ Tom. 2. p. 911.) mentions a great triangular stone, described by _Sebastian Brandt_, (which seems to have been the identical stone I have already mentioned as having been preserved in the church of Anxissem,) and which was said to have fallen from heaven, in the year 1493 [November 7, 1492], at Ensisheim or Ensheim.
+
+_Muschenbroek_,* speaking of the same stone, says, that the stone was blackish, weighed about 300lb. and that marks of fire were to be seen upon it; but apprehended (in which he seems to have been mistaken) that the date of the fall was 1630.
+
+*) Essai de Physique, Tom. 2. sect. 1557.
+
+_Chladni_ also mentions another instance (from _Nic. Huknanfii_ Hist. Hungar. lib. 20. fol. 394.) of five stones, said to have fallen from heaven at _Miscoz_, in Transylvania, in a terrible thunder storm and commotion of the air, which were as big as a man's head, very heavy, of a pale yellow, and iron, or rusty colour; and of a strong sulphureous smell; and that four of them were kept in the treasury room at Vienna.
+
+He adds, (from _John Binhard's_ Thuring. Chron. p. 193.) that on the 26th of July, 1581, between one and two o'clock in the afternoon, a stone fell down in _Thuringia_, with a clap of thunder, which made the earth shake; at which time a small light cloud was to be seen, the sky being otherwise clear. It weighed 39lb.; was of a blue and brownish colour. It gave sparks, when struck with a flint, as steel does. It had sunk five quarters of an ell deep in the ground; so that the soil, at the time, was struck up to twice a man's height; and the stone itself was so hot, that no one could bear to touch it. It is said to have been afterwards carried to Dresden.
+
+He adds, also, that in the 31st Essay of the Breslau Collections, p. 44 is found an account by Dr. _Rost_; that on the 22nd of June, 1723, about two o'clock in the afternoon, in the country of Pleskowicz, some miles from _Reichstadt_, in Bohemia, a small cloud was seen, the sky being otherwise clear; whereupon, at one place twenty-five, at another eight, great and small stones fell down, with a loud report, and without any lightning being perceived. The stones appeared externally black, internally like a metallic ore, and smelt strongly of brimstone.
+
+And I shall conclude all _Chladni's_ remarkable facts, in addition to those which I had myself collected, before ever I heard of his curious book, with a short summary of what he calls one of the _newest_ accounts of this kind, extracted from the _Histoire de l'Académie des Sciences_, 1769, p. 20.
+
+It is an account of three masses, which fell down with thunder, in provinces very distant from one another; and which were sent to the Academy in 1769. They were sent from _Maine_, _Artois_, and _Cotentin_: and it is affirmed, that when they fell an hissing was heard; and that they were found hot. All three were like one another; all three were of the same colour, and nearly of the same grain; and small metallic and pyritical particles could be distinguished in them; and, externally, all three were covered with an hard ferruginous coat: and, on chemical investigation, they were found to contain iron, and sulphur.*
+
+*) All these facts are to be found mentioned in Chladni's book; first at p. 8, and then from p. 34 to 37.
+
+Considering, then, all these facts so positively affirmed, concerning these various, most curious phænomena: --- the explosions; --- the sparks; --- the lights; --- the hissing noises; --- the stones seen to fall; --- the stones dug up hot, and even smoking; --- and some scorching, and even burning other bodies in their passage; --- we cannot but also bring to remembrance, what Sir John Pringle affirmed to have been observed; concerning a fiery meteor, seen on Sunday, the 26th of November, 1758, in several parts of England and Scotland.*
+
+*) See the full account in the Philosophical Transactions, Vol. 51. for 1759, p. 218, _etc._
+
+That the head, which appeared about half the diameter of the moon, was of a bright white, like iron when almost in a melting heat*; the tail, which appeared about 8° in length, was of a duskish red, burst in the atmosphere, when the head was about 7° above the horizon, and disappeared; and in the room thereof were seen three bodies like stars, within the compass of a little more than three degrees from the head, which also kept descending with the head.
+
+*) This is according to the account sent by the Rev. Mr. Michell, Fellow of Queen's College, Cambridge, p. 223.
+
+That before this, in another place, near Ancram in Scotland, (where the same meteor was seen) one-third of the tail, towards the extremity, appeared _to break off_, and to separate into sparks, resembling stars. --- That soon after this the body of the meteor had its light extinguished, with an explosion; but, as it seemed to the observer there, _the form of the entire figure of the body, quite black, was seen to go still forwards in the air_.* By some persons, also, an hissing noise* was apprehended to be heard.
+
+*) Ib. p. 237, 265, 269.
+
+*) Ib. p. 265.
+
+Whether this might, or might not be an ignited body, of the kind we have been describing, falling to the earth, deserves consideration. Sir John Pringle seems to have been convinced that it was really _a solid substance_; but fairly adds,* that if such meteors had really ever fallen to the earth, there must have been, long ago, so strong evidence of the fact, as to leave no room to doubt.
+
+*) Ib. p. 272.
+
+Perhaps, in the preceding accounts, we have such evidence, _now_ fairly collected together; at least in a certain degree.
+
+I take all the facts, just as I find them affirmed. I have preserved a faithful and an honest record.
+
+For the sake of possible philosophical use; --- let the philosophical, and curious just preserve these facts in remembrance.
+
+For the sake of philological advantage; --- let the discerning weigh, and judge. For (if such things be,) what has so often come to pass, according to what is commonly called _the usual course of nature_; may most undoubtedly, henceforth, without any hesitating doubts, be believed to have been brought to pass, on an extraordinary occasion, in a still more tremendous mamner, by the immediate _fiat of the Almighty_.
+
+Let no man scoff; lest he drives away the means of real information. --- And let all men _watch_, for the increase of science. ---
+
+The wisdom and power of God are far above not only the first apprehensions, but even the highest ideas of man. And our truest wisdom, and best improvement of knowledge, consist in searching out, and in attending diligently, to what he has actually done: ever bearing in mind those words of the holy Psalmist.*
+
+"_The works of The Lord are great: sought out of all them that have pleasure therein."
+
+"The Lord hath so done his marvellous works, that they ought to be had in remembrance."
+
+*) Psalm 111. v. 2 and 4.
+
+Postscript.
+
+Since these sheets were printed, I have received from Sir Charles Blagden, a present of one of the very small stones mentioned, p. 7, that are affirmed to have fallen in Tuscany; and which has very lately been brought carefully from Italy.
+
+Its figure plainly indicates, that in the instant of its formation, there was a strong effort towards crystallization. For it is an irregular quadrilateral pyramid; --- whose base, an imperfect kind of square, has two of its adjoining sides about six-tenths of an inch long, each; and the other two, each about five-tenths: whilst two of the triangular sides of the pyramid, are about six-tenths, on every side of each triangle, all of which are a little curved: and the other two triangular sides, are only five-tenths on the sides where these two last join.
+
+Its black crust, or coating, is such as has been described in the preceding pages: and is also remarkable, for the appearance of a sort of minute chequer work, formed by very fine white lines on the black surface.
+
+And, although this small specimen weighs only four pennyweights, nineteen grains; it is a matter well deserving attention, with regard to its interior substance, how much resemblance, on the whole, it really has with the stone said to have fallen in Yorkshire; in its gritty substance, and in its metallic, and pyritical spots, and in those parts where the pyrites appear to have been decomposed.
+
+On this occasion, therefore, it would _now_ be a want of justice, not to subjoin the full and more particular account, given in the _Journal de Physique_, (Tome 2. p. 251.), _by M. M. Fougeroux_, of the stone which fell in _Maine_; and which has already been shortly mentioned, as described _in the Hist. de I' Acad. des Sciences_ (for 1769. p. 20), with two others, from _Artois_, and _Cotentin_; because this also, both in its history, and in its appearance, seems to have had so near an affinity to the Yorkshire stone.
+
+On the 13th of September, 1768, about half an hour after four in the afternoon, there was seen near the castle of Lucé in Maine, a tempestuous cloud; from which was heard an explosion of thunder, like the firing of a cannon, but without the appearance of lightning: there was then heard a remarkable whizzing noise in the air; and some persons travelling, on looking up, saw an opaque body descending in a curved line; which fell in a green patch of ground near the high road to _Mons_. They all ran instantly to the spot; and found a kind of stone, one half of which was buried in the soil; and which was so burning hot, that they could not possibly touch it.
+
+This stone weighed seven pounds and an half: was of a triangular, (_or rather of a pyramidal form_). --- The part which was buried in the earth, was of a grey ash colour; and that which was exposed to the air was extremely black; covered with a very thin black crust, somewhat puffed up in places, and which appeared to have been melted. The interior part of the stone, when examined with a magnifying glass, appeared of a grey pale ash colour, spotted with a prodigious number of minute brilliant metallic spots, and of a pale yellow. --- The interior part, when stricken with steel, would not yield any sparks; but the exterior coating did.
+
+The specific gravity of the stone was 3,535. --- And the chemical analysis of it, showed it to contain, in 100 parts; 8.5 of sulphur; 36 of iron; and 55.5 of vitrifiable earth.
+
+The academicians, indeed, thought it was a stone merely _struck by lightning_: but, since so many corresponding facts, in other places, so remote, and so unconnected with each other, and suggesting a more interesting idea, have now come to light; such sort of _concurrent_ evidence, according to the rule so wisely adopted by the learned Grotius, in his treatise _De Veritate_, ought, surely, to be duly weighed: and may justly lead us to a different conclusion.
