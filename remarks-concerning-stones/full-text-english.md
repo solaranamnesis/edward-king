@@ -142,4 +142,118 @@ And Hooke says,* that on occasion of a great explosion from a volcano, in the is
 
 And now, I must add; that such kind of _falling of stones from the clouds_, as has been described to have happened in Tuscany, seems to have happened also in very remote ages, of which we are not without sufficient testimony; and such as well deserves to be allowed and considered, on the present occasion; although the knowledge of the facts was, at first, in days of ignorance and gross darkness, soon perverted to the very worst purposes.
 
+In the Acts of the holy Apostles, we read, that the chief magistrate, at _Ephesus_, begun his harangue to the people, by saying, "Ye men of Ephesus, _what man is there that knoweth not how that the city of the Ephesians is a worshipper of the great goddess Diana, and of the_ **image** _which fell down from Jupiter_?" (or rather, as the original Greek has it) "_of_ **that** _which fell down from Jupiter_?" And the learned _Greaves_ leads us to conclude this image of Diana to have been nothing but _a conical, or pyramidal stone_, that fell from the clouds. For he tells us,* on unquestionable authorities, that many others of the images of heathen deities were merely such.
+
+*) Pyramidographia, Vol. 1. 89-91.
+
+Herodian expressly declares,* that the Phoenicians had no statue of the sun, polished by hand, to express an image; but only had a certain _great stone, circular below, and ending with a sharpness above, in the figure of a cone, of black colour. And they report it to have fallen from heaven, and to be the image of the sun_.
+
+*) Lib. 5.
+
+So Tacitus says,* that at Cyprus, _the image of Venus was not of human shape; but a figure rising continually round, from a larger bottom to a small top, in conical fashion_. And it is to be remarked, that _Maximus Tyrius_ (who perhaps was a more accurate mathematician,) says, the stone was _pyramidal_.
+
+*) Lib. 2.
+
+And in Corinth, we are told by _Pausanias_,* that the images both of _Jupiter Melichius_, and of _Diana_, were made (if made at all by hand) with little or no art. The former being represented by a pyramid, the latter by a column.
+
+*) In his Corinthiaca.
+
+_Clemens Alexandrinus_ was so well acquainted with these facts, that he even concludes* the worship of such stones to have been the first, and earliest idolatry, in the world.
+
+*) Clem. Alex. lib. 1. --- Stromatum.
+
+It is hard to conceive how mankind should ever have been led to so accursed an abomination, as the worship of stocks, and stones, at all: but, as far as any thing so horrid is to be accounted for, there is no way so likely of rendering a possible account; as that of concluding, that some of these pyramidal stones, at least, like the image of _Diana_, actually did fall, in the earliest ages, from the clouds; in the same manner as these pyramidal stones fell, in 1794, in Tuscany.
+
+_Plutarch_, it is well known, mentions* a stone which formerly fell from the clouds, in _Thrace_, and which _Anaxagoras_ fancied* to have fallen from the sun.
+
+*) In Vita Lysandri.
+
+*) Diogenes in Anaxag.
+
+And it is very remarkable, that the old writer, from whom Plutarch had his account, described the cloud, from which this stone was said to fall, in a manner (if we only make some allowance for a little exaggeration in barbarous ages,) very similar to _Soldani's_ account of the cloud in Tuscany. --- It hovered about for a long time; seemed to throw out splinters, which flew about, like wandering stars, before they fell; and at last it cast down to the earth a stone of extraordinary size.
+
+Pliny,* who tells us that not only the remembrance of this event, but that the stone itself was preserved to his days, says, it was of a dark burnt colour. And though he does indeed speak of it as being of an extravagant weight and size, in which circumstance perhaps he was misled: yet he mentions _another_ of a moderate size, which fell in _Abydos_, and was become an object of idolatrous worship in that place; as was still _another_, of the same sort, at _Potidæa_.
+
+*) Historia Nat. lib. 2. cap. 59.
+
+_Livy_, who like _Herodotus_, has been oftentimes censured as too credulous, and as a relater of falsehoods, for preserving traditions of _an extraordinary kind_; which, after all, in ages of more enlarged information, have proved to have been founded in truth; describes* a fall of stones to have happened on mount _Alba_, during the reign of _Tullus Hostilius_, (that is about 652 years before the Christian era), in words that exactly convey an idea of just such a phænomenon, as this which has so lately been observed in Tuscany.
+
+*) Lib. 1. Sec. 31.
+
+He says, the senate were told, that _lapidibus pluisse_, it had rained stones. And, when they doubted of the fact; and sent to inquire; they were assured that stones had actually fallen; and had fallen just as hail does, which is concreted in a storm.*
+
+*) Haud aliter quam quum grandinem venti glomeratam in terras agunt, crebri cecidere cœlo lapides.
+
+He mentions also shortly another shower of stones,* A. C. 202, and still a third,* which must have happened about the year 194 before the Christian era.
+
+*) Lib. 30. Sec. 28.
+
+*) Lib. 34. Sec. 45.
+
+Such are the records of ancient history. And in Holy Writ also a remembrance of similar events is preserved.
+
+For when the royal Psalmist says,* "_The Lord also thundered out of heaven, and the Highest gave his thunder: hail-stones_, **and coals of fire**," -- the latter expression, in consistency with common sense, and conformably to the right meaning of language, cannot but allude to some such phænomenon as we have been describing. And especially, as in the cautious translation of the seventy, a Greek word is used, which decidedly means _real hard substances made red hot_; and not mere appearances of fire or flame.
+
+*) Psalm 18. v. 13.
+
+Whilst therefore, with the same sacred writer,* we should be led to consider all these powerful operations, as the works of God; _Who casteth forth bis ice like morsels_;* and should be led to consider "_fire and hail, snow and vapours, wind and storm as fulfilling his word_*"; we should also be led to perceive, that the objections to Holy Writ, founded on a supposed _impossibility_ of the truth of what is written in the book of _Joshua_,* concerning the stones that fell from heaven, on the army of the Canaanites; are only founded in ignorance, and error.
+
+*) Psalm 148. v. 8.
+
+*) Psalm 147. v. 17.
+
+*) Psalm 148. v. 8.
+
+*) Joshua, ch. 10. v. 11.
+
+And much more should we be led to do so; when, to these observations, and testimonies, concerning showers of hot burning stones, is added the consideration; that within the short period of our own lives, incredibly large _real hail-stones_, formed of consolidated ice; --- _of ice consolidated in the atmosphere_, have fallen both in France, and in England.
+
+In France, on the 13th of July in the year 1788; --- of which it is well known there has been a printed account: and concerning which it is said, and has been confirmed, on good authority, that some of the stones weighed three pounds: whilst others have been said to weigh even five pounds.
+
+And in England, on the 20th of October, 1791, in Cornwall.
+
+Of one of the hail-stones of this latter, minor storm, I have had an opportunity of obtaining, by the favour of a friend, an exact model in glass; whereof I now add an engraving.
+
+This stone fell, with thousands of others of the same kind, near _Menabilly_, the seat of _Philip Rashleigh_, Esq.; well known for his science, and attention to whatever is curious; who having great copper works, and many ingenious miners, and workmen, on his estate, and directly under his eye; caused it to be instantly picked up: and having then, himself, first traced both its top, and bottom, upon paper; and having measured its thickness in every part, with a pair of compasses; caused a very exact mould to be formed: and afterwards, in that mould, had this model cast in glass: wherein, also, the appearances of the imbedded, common, small, roundish hail-stones, are seen transparently; just as they appeared in the great hail-stone itself originally.
+
+Fig. 1, is a representation of the flat bottom of the stone.
+
+Fig. 2, is a representation of the top of the stone.
+
+And Fig. 3, shows the whole solid appearance sideways.
+
+Whilst Mr. Rashleigh was taking the measures, it melted so fast, that he could not, in the end, take the _exact weight_, as he fully intended to have done. But as this model in glass weighs exactly 1 ounce, 16 pennyweights, 23 grains, we may fairly conclude, that the hail-stone itself weighed much above half an ounce.
+
+For it is well known, that the specific gravity of common glass, of which sort this model is made, is to that of water, as 2.620 to 1.000. And the specific gravity of common water, is to ice, as 8 to 7.* --- And computing according to this standard, I make the exact weight of the hail-stone to have been 295 grains.
+
+*) Hooke's Experiments, p. 134.
+
+From the singular manner in which the small, prior, common hail-stones appear to have been imbedded in this larger one, whilst they were falling to the earth; there is reason to be convinced, that it was formed in the atmosphere, by a sudden extraordinary congelation _almost instantaneously_, out of rain suddenly condensed, which was mingled with the common hail.
+
+And it was very remarkable, that its dissolution, and melting, also, was much more rapid than that of the common small white hail-stones: as was the case, in like manner, with the other numerous large ones.
+
+Perhaps it ought to be here added: --- that on the 18th of May, in the year 1680, some hail-stones are recorded to have fallen in London, near _Gresham college_, which were seen and examined by the celebrated _Dr. Hooke_; and were some of them not less than two inches over, and others three inches.
+
+This which fell in Cornwall was only about one inch and three quarters long; an inch, or in some parts an inch and a quarter broad; and between half an inch, and three quarters of an inch thick. And its weight was near an ounce. --- How much more tremendous then were those others, that have been described as having fallen in France? --- the accounts of some of them may very probably have been exaggerated: but the reality was nevertheless as wonderful, surely, as any thing related concerning the ages of antiquity.
+
+A proneness to credulity is ever blameable. And it is very possible, that sometimes, in a very wonderful narration, a jest may be intended to be palmed upon the world, instead of any elucidation of truth. --- But facts, _positively affirmed_, should be hearkened to with patience: and, at least, so far recorded, as to give an opportunity of verifying whether similar events do afterwards happen; and of comparing such events one with another.
+
+To what has been said, therefore, concerning the fall of stones in Tuscany, and concerning these strange showers of hail, in France, and in England, it might perhaps too justly be deemed an unwarrantable omission, on this occasion, not to mention the very strange faet that is affirmed to have happened the last year, near _the Wold Cottage_ in Yorkshire.
+
+I leave the fact to rest on the support of the testimonies referred to in the printed paper, which is in so many persons' hands; and that is given to those who have the curiosity to examine the stone itself, now exhibiting in London; --- and shall only relate the substance of the account shortly, as it is given to us.
+
+In the afternoon of the 13th of December, 1795, near the Wold Cottage, noises were heard in the air, by various persons, like the report of a pistol; or of guns at a distance at sea; though there was neither any thunder or lightning at the time: --- two distinct concussions of the earth were said to be perceived: --- and an hissing noise, was also affirmed to be heard by other persons, as of something passing through the air; --- and a labouring man plainly saw (as we are told) that something was so passing; and beheld a stone, as it seemed, at last, (about ten yards, or thirty feet, distant from the ground) descending, and striking into the ground, which flew up all about him: and, in falling, sparks of fire, seemed to fly from it.
+
+Afterwards he went to the place, in company with others, who had witnessed part of the phænomena, and dug the stone up from the place, where it was buried about twenty-one inches deep.
+
+It smelt, (as it is said,) very strongly of sulphur, when it was dug up: and was even warm, and smoked: --- it was found to be thirty inches in length, and twenty-eight and a half inches in breadth. And it weighed fifty-six pounds.
+
+Such is the account. --- I affirm nothing. --- Neither do I pretend either absolutely to believe: or to disbelieve. --- I have not an opportunity to examine the whole of the evidence. --- But it may be examined: and so I leave it to be.
+
+This, however, I will say: that _first_ I saw a fragment of this stone; which had come into the hands of Sir Charles Blagden, from the Duke of Leeds: and afterwards I saw the stone itself. --- That it plainly had a dark, black crust; with several concave impressions on the outside, which must have been made before it was quite hardened; just like what is related concerning the crusts of those stones that fell in Italy. --- That its substance was not _properly of a granite kind_, as described in the printed paper; but a sort of _grit stone_; composed (somewhat like the stones said to have fallen in Italy) of sand and ashes. --- That it contained very many particles, obviously of the appearance of gold, and silver, and iron; (or rather more truly of _pyrites_). --- That there were also several small rusty specks; probably from decomposed pyrites; --- and some striated marks; --- that it does not effervesce with acids; --- and that, as far as I have ever seen, or known, or have been able to obtain any information, no _such_ stone has ever been found, before this time, in Yorkshire; or in any part of England. Nor can I easily conceive that such a species of stone could be formed, by art, to impose upon the public.
+
+Whether, therefore, it might, or might not, possibly be the effect of ashes flung out from _Heckla_, and wafted to England; like those flung out from Vesuvius, and (as I am disposed to believe) wafted to Tuscany, I have nothing to affirm.
+
+I wish to be understood to preserve mere records, the full authority for which, deserves to be investigated more and more.
+
 ...
